@@ -1,4 +1,4 @@
-### Helloo everyone, I'm Getsie!🌻✨
+### Helloo everyone, I'm Getsie!🌻✨ this is my second account, also known as a "test".
 
 <h3 align="center">One of many students, but the happiest to die learning. | Stormy Mind ☔️</h3>
 <img align="right" alt="Coding" width="400" src="https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExNmc3aDNnZXNnNjhnY2cxM3FpY3BzMHE5dmc5cXF6c2JxYzcydmM5dSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/xoJlCBK93oU2CUUA8J/giphy.gif">
